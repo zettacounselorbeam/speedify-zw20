@@ -1,4 +1,4 @@
-
+Enhance your Hola VPN experience with secure Hola VPN App | end-to-end-encryption + multi-protocol-support, the #1 app. Includes end-to-end-encryption and multi-protocol-support
 
 
 
